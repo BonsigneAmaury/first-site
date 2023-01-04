@@ -7,5 +7,5 @@ par l'élaboration de la charte graphique ainsi que la création des personas. C
 changement d'image dans le index
 
 ## Contact des autres membres du groupe
-Quentin Lagadec : https://www.linkedin.com/in/quentinlagadec/
+Quentin Lagadec : https://www.linkedin.com/in/quentinlagadec/  
 Axel Poteau : https://www.linkedin.com/in/axel-poteau-1923a7242/
